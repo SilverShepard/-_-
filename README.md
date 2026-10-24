@@ -6,4 +6,7 @@
 
 ˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖
 
-- @Ponytowns-rewards ` 𝘊𝘶𝘥𝘥𝘭𝘪𝘦𝘴𝘵 𝘗𝘭𝘢𝘺𝘦𝘳𝘴, 𝘗𝘵'𝘴 𝘔𝘪𝘭𝘦𝘴 𝘔𝘰𝘳𝘢𝘭𝘦𝘴 
+- @Ponytowns-rewards `<img width="720" height="121" alt="1000003271" src="https://github.com/user-attachments/assets/51d921de-01b0-4f85-a8d3-32909de63c3b" />
+
+
+  
