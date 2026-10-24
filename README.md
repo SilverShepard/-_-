@@ -1,5 +1,6 @@
- <img width="735" height="239" alt="1000002349" src="https://github.com/user-attachments/assets/527da00b-8150-4306-b962-ad122a81d81a" />
-*:..｡₊‧°𐐪♡𐑂°‧₊*ﾟ¨ﾟﾟ✧･ﾟ: *✧･ﾟ:*.・゜゜・༶°❀⋆.ೃ࿔*:･
+ <img width="736" height="414" alt="1000003278" src="https://github.com/user-attachments/assets/d2db7ef8-cb53-4731-8579-13646fcf022e" />
+
+
 
 
   <img width="736" height="152" alt="1000003272" src="https://github.com/user-attachments/assets/d50d807f-3692-43d6-84ac-16f538b50acc" />
